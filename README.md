@@ -2,7 +2,7 @@
 
 I'm currently a sophomore at Binghamton University and I like to create.
 
-You can reach me at ```orioncummings23@gmail.com```
+You can reach me at ```ocummin1@binghamton.edu```
 
 
 
